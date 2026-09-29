@@ -99,9 +99,9 @@ Were you the kid who never caused any trouble? The one teachers called "so matur
 It might have felt like a compliment back then. But being the "easy child" often means something else: you learned early that your needs came second. And years later, that lesson can still show up in quiet ways you might not notice.
 
 ### [0:30] INTRO + DISCLAIMER
-*(Visual: Psych2Go logo pop.)*
+*(Visual: Inner Nook logo pop: a small glowing lamp in a cozy reading corner.)*
 
-Hey, Psych2Goers, welcome back to our channel! Before we begin, please note that this video is for educational purposes only and isn't meant to diagnose anyone. Everyone's childhood is different, and relating to a few of these points doesn't mean something is "wrong" with you or your family. With that said, let's get started.
+Hey there, Nooklings, and welcome back to Inner Nook, your cozy corner for understanding yourself a little better! Before we begin, please note that this video is for educational purposes only and isn't meant to diagnose anyone. Everyone's childhood is different, and relating to a few of these points doesn't mean something is "wrong" with you or your family. With that said, let's get started.
 
 ---
 
@@ -193,7 +193,7 @@ So, which of these signs did you relate to the most? Let us know in the comments
 
 And if any of this brought up difficult feelings, please consider reaching out to a licensed mental health professional. You don't have to work through it on your own.
 
-If you found this video helpful, be sure to give it a like and share it with someone who might need to hear this today. Don't forget to subscribe for more content like this. Thanks for watching, and remember: your needs matter too. See you next time!
+If you found this video helpful, be sure to give it a like and share it with someone who might need to hear this today. Don't forget to subscribe for more content like this. Thanks for watching, Nooklings, and remember: your needs matter too. See you next time in the Nook!
 
 *(End card: two suggested videos, e.g. "Signs of Emotional Neglect" and "Why You Always Feel Like a Burden".)*
 
@@ -205,7 +205,7 @@ If you found this video helpful, be sure to give it a like and share it with som
 - Hooper, L. M. (2007). The application of attachment theory and family systems theory to the phenomena of parentification. *The Family Journal, 15*(3), 217–223.
 - Walker, P. (2013). *Complex PTSD: From Surviving to Thriving.* Azure Coyote.
 
-> Before you publish, check each citation against the original source. Change "Hey, Psych2Goers" to your own community name and sign-off.
+> Before you publish, check each citation against the original source. "Inner Nook" and "Nooklings" did not show up in a web search as an existing YouTube channel (checked 2026-09-29), but confirm that the @InnerNook handle is free on YouTube before you create the channel.
 
 ---
 
